@@ -1,6 +1,6 @@
 # About
 
-I will be creating 12 startups in 12 months:  https://levels.io/12-startups-12-months
+My goal is to create & launch 12 startups in 12 months:  https://levels.io/12-startups-12-months
 
 # January 2017
 
